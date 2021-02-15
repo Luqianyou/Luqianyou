@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Luqianyou
-- 👀 I’m interested in web
-- 🌱 I’m currently learning WEB
+- 👀 I’m interested in WEB
+- 🌱 I’m currently learning WEB,if you want to learning with me,please telling me your email address.
 - 📫 How to reach me 757628817@qq.com
